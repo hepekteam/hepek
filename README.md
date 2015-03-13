@@ -20,4 +20,9 @@ the Hepek Team
 
 tboris@pacificwest.com (you can get my private e-mail, just e-mail me... lol)
 (GMT +12)
-sukakurica@humanoid.net
+sukakurica@myself.com 
+(GMT +1)
+
+Skype: boris.trifkovic
+or: live:homer.spank
+
